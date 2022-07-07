@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AbigirlMuchineripi
 - 👀 I’m interested in learning new things...
-- 🌱 I’m currently learning .Leadership and Management..
+- 🌱 I’m currently learning fintech and machine learning
 - 💞️ I’m looking to collaborate on .programming..
 - 📫 How to reach me .muchineripiabby@gmail.com..
 
